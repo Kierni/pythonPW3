@@ -1,0 +1,1 @@
+elo robię to manulanie
